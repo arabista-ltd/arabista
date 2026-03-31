@@ -9,7 +9,7 @@ Welcome to the official GitHub profile of **Arabista Ltd**, a premier digital ag
 * **Digital Marketing:** Conversion-focused Google, TikTok, and Meta Ads management.
 
 ### 🌐 Connect With Us:
-* 🌍 **Official Website:** [Visit Arabista](https://arabista.com) * 🎥 **YouTube Channel:** [Arabista on YouTube](https://youtube.com) * 📍 **Location:** Riyadh, Saudi Arabia.
+* 🌍 **Official Website:** [Visit Arabista](https://arabista.net) * 🎥 **YouTube Channel:** [Arabista on YouTube](https://youtube.com) * 📍 **Location:** Riyadh, Saudi Arabia.
 
 ---
 *Transforming ideas into digital reality since 2026.*
